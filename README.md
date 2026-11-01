@@ -1,1 +1,1 @@
-- arcadia-site
+- arcadia-site by original studio 2011-2026
